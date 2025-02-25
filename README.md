@@ -1,5 +1,4 @@
-# ‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞    ୨୧   ‿͞ ‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿͞‿ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
 ㅤ![](https://komarev.com/ghpvc/?username=graveyardletters&color=4a6596&style=plastic&label=profile+glaze) 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tje](https://github.com/user-attachments/assets/cd162342-f067-4e85-a9ee-675fabc6ff16)
