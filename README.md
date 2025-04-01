@@ -8,10 +8,6 @@
 
 ![stinj](https://github.com/user-attachments/assets/073f67d6-0d51-4d61-86eb-9c20732f815c)
 
-[@elise](https://github.com/akechuu) follow sweet oomf :33 i hearkt elise
+[strawpage](https://deathsdespair.straw.page/)    also i dont think i really have a dni because i dont care about who i talk to(**DEPENDS**)
 
-[strawpage](https://deathsdespair.straw.page/)
-
-
-
-
+#doomed lizzyciel  int
