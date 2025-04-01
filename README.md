@@ -9,8 +9,6 @@
 
 [@elise](https://github.com/akechuu) follow sweet oomf :33 i hearkt elise
 
-[kiss my rentry :/](https://rentry.co/deaths-despair)
-
 
 
 
