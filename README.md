@@ -9,6 +9,8 @@
 
 [@elise](https://github.com/akechuu) follow sweet oomf :33 i hearkt elise
 
+[strawpage](https://straw.page/draw?bio=deathsdespair)
+
 
 
 
