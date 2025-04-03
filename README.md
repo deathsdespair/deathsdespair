@@ -11,3 +11,5 @@
 [strawpage](https://deathsdespair.straw.page/)    also i dont think i really have a dni because i dont care about who i talk to(**DEPENDS**)
 
 #doomed lizzyciel  int
+
+[ATABOOK](https://deathsdespair.atabook.org/)    open again... hai
