@@ -1,6 +1,6 @@
 
 
-ㅤ![](https://komarev.com/ghpvc/?username=graveyardletters&color=4a6596&style=plastic&label=profile+glaze) 
+ㅤ![](https://komarev.com/ghpvc/?username=graveyardletters&color=4a6596&style=plastic&label=how+much+sebastian+loves+you+♡) 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
