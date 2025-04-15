@@ -1,9 +1,13 @@
-![](https://komarev.com/ghpvc/?username=graveyardletters&color=f595ba&style=plastic&label=how+much+sebastian+loves+you+♡) 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![](https://komarev.com/ghpvc/?username=graveyardletters&color=9cc3ff&style=plastic&label=how+much+sebastian+michaelis+loves+you+♡+ +) 
 
-![pc1](https://media.discordapp.net/attachments/1059421718474666056/1361581438339645561/hi.png?ex=67ff4707&is=67fdf587&hm=11e44efc375e1aed811bcbfd4d4130b2f65c0c2bdba761342ff79b9709d1062e&=&format=webp&quality=lossless)
-![pc2](https://media.discordapp.net/attachments/1059421718474666056/1361580777212612648/pc2.png?ex=67ff466a&is=67fdf4ea&hm=c7a35d6ffce77c4850bac1cfdc7084101210dd8572a1758327c299019862ba24&=&format=webp&quality=lossless)
-github wip wait
+![1](https://i.postimg.cc/Pf6Rm9kM/IMG-9337.png)![1](https://i.postimg.cc/Pf6Rm9kM/IMG-9337.png)
 
+                                 ![stamp1](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/106c4db5-2575-44ad-9c63-de5c147c32ae/d4v62cf-1a3346c1-52a9-4fec-a91b-44273598f7e1.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzEwNmM0ZGI1LTI1NzUtNDRhZC05YzYzLWRlNWMxNDdjMzJhZVwvZDR2NjJjZi0xYTMzNDZjMS01MmE5LTRmZWMtYTkxYi00NDI3MzU5OGY3ZTEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.5Pg8QYLALC54eKv3UXdHvOi5egk7XHrvz93ja5rcCUI)
 
-                        
+                           ![wing1](https://gifs.crd.co/assets/images/gallery21/52c4ef1e.gif?v=ef433a6f) victor  ![bubble](https://pix.crd.co/assets/images/gallery12/eb2a8a4f.gif?v=95dd3781)  enfp/esfp-a ![wing2](https://gifs.crd.co/assets/images/gallery21/90ef812d.gif?v=ef433a6f)
+
+             **before interacting** … i use kys jokes & i dont take things seriously much
+
+             usually aggressive too , sorry
+
+![2](https://i.postimg.cc/cJZhqBSH/IMG-9338.png)![2](https://i.postimg.cc/cJZhqBSH/IMG-9338.png)
