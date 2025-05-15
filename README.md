@@ -5,6 +5,7 @@
 
 
 ![Screen Shot 2025-05-14 at 7 06 51 AM](https://github.com/user-attachments/assets/db530ab0-f71b-4634-a918-8f96071a6b06)
-NO!!!!! #!# #!!!! NONONE1 NO
+
+i am NOT removing the chewing face!!!!!!!
 
 # also cielois highly appreciated Ok bye
