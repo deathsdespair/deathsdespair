@@ -8,6 +8,6 @@
 
 i am NOT removing the chewing face!!!!!!!
 ***
-what if [@rin](https://github.com/deathsdespair/deathsdespair/edit/main/README.md) has peak skins guys What if
+what if [@rin](https://github.com/brouillage) has peak skins guys What if
 
 # also cielois highly appreciated Ok bye
