@@ -3,11 +3,6 @@
 
      [atabook](https://deathsdespair.atabook.org/) [rentry](https://rentry.co/deaths-despair)
 
-
-![Screen Shot 2025-05-14 at 7 06 51 AM](https://github.com/user-attachments/assets/db530ab0-f71b-4634-a918-8f96071a6b06)
-
-i am NOT removing the chewing face!!!!!!!
-***
 what if [@rin](https://github.com/brouillage) has peak skins guys What if
 
 # also cielois highly appreciated Ok bye
