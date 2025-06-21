@@ -3,6 +3,7 @@
 
      [atabook](https://deathsdespair.atabook.org/) [rentry](https://rentry.co/deaths-despair)
 
-what if [@rin](https://github.com/brouillage) has peak skins guys What if
 
-# also cielois highly appreciated Ok bye
+ ![silverbell](https://github.com/user-attachments/assets/ffed80c6-8091-49b7-8ce7-817e47290119) ![black sapphire](https://github.com/user-attachments/assets/7334388a-90e6-4497-8ba6-4744aa256122)
+
+      me and rin
