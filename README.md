@@ -1,10 +1,7 @@
-　　 ![](https://komarev.com/ghpvc/?username=graveyardletters&color=e6a5b1&style=plastic&label= + +subscribe+to+have+the+one+on+the+right+executed+ ) 
+<div align="center">
 
+![](https://komarev.com/ghpvc/?username=graveyardletters&color=8969b5&style=plastic&label=my++ fans+ )
 
-　![shumika-ezgif com-resize](https://github.com/user-attachments/assets/082e5bf7-8e36-4980-ae17-9ab61f546fb7)
+![kanata](https://github.com/user-attachments/assets/44449bf8-82e7-4f16-a872-7e0c3489f415)
 
-　　　　　　　　[atabook](https://deathsdespair.atabook.org/) 　[rentry](https://rentry.co/deaths-despair)
-
-　　 ships ✅ (whisper first about it)　c+h ✅
-   
-   　　 read my pt rentry nyaaah!
+[atabook](https://deathsdespair.atabook.org/)  [rentry](https://rentry.co/deaths-despair)
