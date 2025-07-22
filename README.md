@@ -6,4 +6,4 @@
 
 [atabook](https://deathsdespair.atabook.org/)  [rentry](https://rentry.co/deaths-despair)
 
-sign my ata, Ok? Ok.
+<br> ${\textsf{\color{#8969b5}  haaaiiii sign my ata }}$
