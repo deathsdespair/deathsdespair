@@ -8,6 +8,6 @@
 
 [atabook](https://deathsdespair.atabook.org/)     [rentry](https://rentry.co/deaths-despair)
 
-<br> ${\textsf{\color{#82d1cc}  cuddle is encouraged . same with whispering because i might reply late   }}$
+<br> ${\textsf{\color{#82d1cc}  cuddle is encouraged . W2I encouraged aswell }}$
 
 <br> ${\textsf{\color{#82d1cc}  sign ata :P   i love my malewife @belphie}}$
