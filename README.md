@@ -1,10 +1,9 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=graveyardletters&color=e8ce95&style=plastic&label=‎‎ +♡♡♡+  )
+<img width="1280" height="242" alt="haai" src="https://github.com/user-attachments/assets/0d15c59b-29ed-46fd-924f-872942014bfd" />
 
-<img width="418" height="418" alt="finnian" src="https://github.com/user-attachments/assets/2dedac30-fd0c-4257-9378-40dccab715c4" />
+![](https://komarev.com/ghpvc/?username=graveyardletters&color=82d1cc&style=plastic&label=‎‎ +views+  )
 
+<img width="599" height="417" alt="ithaah" src="https://github.com/user-attachments/assets/c9b745ad-b220-4e61-9223-a71bef4a3602" />
 
-[atabook](https://deathsdespair.atabook.org/)  [rentry](https://rentry.co/deaths-despair)
-
-<br> ${\textsf{\color{#e8c88e}  cuddle is encouraged  same with whispering because i message late 😳}}$
+[atabook](https://deathsdespair.atabook.org/)     [rentry](https://rentry.co/deaths-despair)
