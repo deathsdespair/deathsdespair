@@ -7,3 +7,7 @@
 <img width="599" height="417" alt="ithaah" src="https://github.com/user-attachments/assets/c9b745ad-b220-4e61-9223-a71bef4a3602" />
 
 [atabook](https://deathsdespair.atabook.org/)     [rentry](https://rentry.co/deaths-despair)
+
+<br> ${\textsf{\color{#82d1cc}  cuddle is encouraged . same with whispering because i might reply late   }}$
+
+<br> ${\textsf{\color{#82d1cc}  sign ata :P   }}$
