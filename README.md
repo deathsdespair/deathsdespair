@@ -8,5 +8,3 @@
 [atabook](https://deathsdespair.atabook.org/)  [rentry](https://rentry.co/deaths-despair)
 
 <br> ${\textsf{\color{#e8c88e}  cuddle is encouraged  same with whispering because i message late 😳}}$
-***
-mass unfollowing sorry if i unfollowed you  ( i follow back if were oomfs :P )
