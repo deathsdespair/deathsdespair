@@ -12,8 +12,3 @@
 
 <br> ${\textsf{\color{#82d1cc}  sign ata :P   i love my malewife @belphie}}$
 
-***
-
-<img width="245" height="283" alt="Screen Shot 2025-07-26 at 7 37 54 AM" src="https://github.com/user-attachments/assets/ef496bb0-69f9-46a7-9d5b-922741d7b731" />
-
-image of shame
