@@ -6,7 +6,7 @@
 
 <img width="315" height="315" alt="shuake" src="https://github.com/user-attachments/assets/9ba416c2-8571-418a-b10c-691e48696bfa" />
 
-[atabook](https://deathsdespair.atabook.org/)     [rentry](https://rentry.co/deaths-despair)
+[atabook](https://deathsdespair.atabook.org/)     [rentry](https://rentry.co/deaths--despair)
 
 <br> ${\textsf{\color{#ad2b2b}  cuddle is encouraged . W2I encouraged aswell }}$
 
