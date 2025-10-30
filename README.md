@@ -12,7 +12,7 @@ veil . vivi
 
 – cuddling with me is fine , same with crowning
 
-– interacting will be kind of difficult , i could be AFK or busy .
+– interacting will be kind of difficult , i could be AFK or busy . (**WHISPERING** recommended)
 
 – i block freely lol
 
