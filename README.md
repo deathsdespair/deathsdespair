@@ -8,6 +8,8 @@ veil . vivi
 
 ![me when](https://github.com/user-attachments/assets/1e0a4987-f5d9-40c7-88cf-fe27520d18a2)
 
+.
+
 – cuddling with me is fine , same with crowning
 
 – interacting will be kind of difficult , i could be AFK or busy .
