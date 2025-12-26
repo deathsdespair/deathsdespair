@@ -2,7 +2,7 @@
 
 ![](https://64.media.tumblr.com/f9255d2fa8b1a2d11978c306e1a6f296/ffa3b15ab0f75b77-09/s1280x1920/1485538142d8c6e5541ff9747d1b5811a9876be8.pnj)
 
-![](https://komarev.com/ghpvc/?username=graveyardletters&color=9c9c9c&style=plastic&label=‎‎ +views+  )
+![](https://komarev.com/ghpvc/?username=graveyardletters&color=9c9c9c&style=plastic&label=‎‎ +U+little+fuckers  )
 -
 veil . vivi
 
