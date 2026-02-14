@@ -1,33 +1,30 @@
 <div align="center">
 
-![](https://64.media.tumblr.com/f9255d2fa8b1a2d11978c306e1a6f296/ffa3b15ab0f75b77-09/s1280x1920/1485538142d8c6e5541ff9747d1b5811a9876be8.pnj)
+![div1](https://github.com/user-attachments/assets/2dbcfaaa-0c57-485b-b63a-81bf1569fe19)
 
-![](https://komarev.com/ghpvc/?username=graveyardletters&color=9c9c9c&style=plastic&label=‎‎ +U+little+fuckers  )
--
-veil . vivi
+![](https://komarev.com/ghpvc/?username=graveyardletters&color=9c9c9c&style=plastic&label=‎‎ +glaze+  )
 
-![me when](https://github.com/user-attachments/assets/1e0a4987-f5d9-40c7-88cf-fe27520d18a2)
+══════
+
+Viel or Victor. Call me anything, I don't mind unless if its innapropriate
+
+Cuddling / crowning me is fine , **whispering** me to interact is recommended ( **im mostly offtab** )
 
 .
 
-– cuddling with me is fine , same with crowning
 
-– interacting will be kind of difficult , i could be AFK or busy . (**WHISPERING** recommended)
+Ask to match ponies with me ♡ , I also dont mind & enjoy matching.
 
-– i block freely lol
+I block **freely**. Interact with caution
 
-![hold hands ](https://github.com/user-attachments/assets/c19d05dd-0001-45e8-9b9e-48ac5450793d)
+.
+
+![sefikura](https://github.com/user-attachments/assets/e097e141-526f-4928-b00f-09e193ba4f0d)
 
 me and user [@deathriders](https://github.com/deathriders)
 
-.
+══════
 
-[rentry](https://rentry.co/deaths-despair)   [atabook](https://deathsdespair.atabook.org/)
 
-![](https://media.discordapp.net/attachments/1059421718474666056/1433448727451930786/Untitled507_20251030213254.png?ex=6904baa8&is=69036928&hm=2b915475020120d2fc9f24ae4f56aa080e63abbf49321037b3f69206c126899e&=&format=webp&quality=lossless)
--
-![](https://64.media.tumblr.com/f9255d2fa8b1a2d11978c306e1a6f296/ffa3b15ab0f75b77-09/s1280x1920/1485538142d8c6e5541ff9747d1b5811a9876be8.pnj)
+![div1](https://github.com/user-attachments/assets/2dbcfaaa-0c57-485b-b63a-81bf1569fe19)
 
-.
-
-![](https://i.pinimg.com/736x/87/f9/29/87f929f88b42514a56561cbe06bedf39.jpg)
