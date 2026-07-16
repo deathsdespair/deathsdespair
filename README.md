@@ -7,19 +7,19 @@
 ══════════════════
 
 
-[atabook](https://deathsdespair.atabook.org/)   [rentry](https://rentry.co/deaths-despair)
+[atabook](https://deathsdespair.atabook.org/)  no more rentry cause the creators are zionists
 
 ══════════════════
 
 
-Viel / Victor or call me anything , I don't mind unless if its innapropriate </3
+??? Call or name me anything as long as it isnt innapropriate
 
 Cuddling / crowning me is fine , **whispering** me to interact is recommended ( **im mostly offtab** )
 
 .
 
 
-Ask to match with me ♡ , I also dont mind & enjoy matching
+Ask to match with me I dont mind 
 
 I block **freely**. Interact with caution
 
